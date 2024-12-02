@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @moseafa
 - 👀 I’m interested in it
 - 🌱 I’m currently learning it
-- 💞️ I’m looking to collaborate on 
-- 📫 How to reach me ...
-- 😄 Pronouns: ...
+- 💞️ I’m looking to collaborate on google
+- 📫 How to reach me .thekomando7@gmail.com
+- 😄 Pronouns: ...ZERO
 - ⚡ Fun fact: ...
 
 <!---
