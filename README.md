@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @moseafa
-- 👀 I’m interested in it
-- 🌱 I’m currently learning it
+- 👀 I’m interested in cyper security 
+- 🌱 I’m currently learning cyper security
 - 💞️ I’m looking to collaborate on google
-- 📫 How to reach me .thekomando7@gmail.com
+- 📫 How to reach me .thekomando7@gmail.com 
 - 😄 Pronouns: ...ZERO
 - ⚡ Fun fact: ...
 
